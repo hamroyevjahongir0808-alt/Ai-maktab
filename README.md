@@ -1,1 +1,1 @@
-# Ai-maktab
+EDU.AI
